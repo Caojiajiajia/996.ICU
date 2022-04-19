@@ -67,8 +67,9 @@ Principles and purposes
 
 * We are willing to hear all positive and constructive proposals and advocate mature and responsible speech.
 
-
-Expanding influence
+骨干
+扩大影响能够为可供可破该哭破壳日公婆
+骨干
 ---
 
 Please feel free to [translate 996.ICU's contents](i18n/README.md), adjust the format, add some contents or fix grammatical errors. Please note that adding too many translations is getting off the track.
